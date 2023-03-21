@@ -1,5 +1,5 @@
-### Xin chào 👋, Tôi là Thiện.
+### Xin chào 👋, Mình là Thiện.
 
 - Điều gì dẫn bạn tới đây ?
-- Tôi có thể giúp gì cho bạn?
-- Chat với tôi nhé [Skype](https://join.skype.com/invite/HDrotZ8hlX69)
+- Mình có thể giúp gì cho bạn?
+- Chat với mình nhé [Skype](https://join.skype.com/invite/HDrotZ8hlX69)
